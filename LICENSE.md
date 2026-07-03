@@ -1,4 +1,4 @@
-
+Experience oil empire like never before with instant oil empire Scripts, the #1 Script. Includes auto-farm and anti-ban for unbeatable performance.
 
 
 
